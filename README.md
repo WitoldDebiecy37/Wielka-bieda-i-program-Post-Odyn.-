@@ -1,3 +1,4 @@
 # Wielka-bieda-i-program-Post-Odyn.- Walka z biedą. 
 Mowa o roszerzaniu się szarej strefy. I wielkiej biedzie. Braku pracy. Chce zaproponować dysk na biedę SSD dysk z internetem rzeczy procesro prawy centralny. Tam znajdziecie wszystkie projekty moje i rozdacie dyski ludziom ubogim będą tam te koce dla kobiet co kobiety robiły zadymy że koca nie mają i płaszcza. Będą sztabki złota złoto i biżuteria i inne rzeczy niezbedne do życia i pieniadze i inne rzeczy. Jak bieda się wzmorzy ludzie zaczną produkować ten dysk i rozdawać go w domu pomocy społecznej za miast lotto i pomaraniczowej rewolucji. Czas na szarą rewolucje. Banki upadają. Wszystko upada. 
 Na tym dysku będą wszystkie moje projekty z walką z biedą. 
+Ten dysk z CardComputerem będzie za miast lotto i kasyn. W wielkiej biedzie i braku pracy będzie on towarzyszyszć każdemu na ziemi. 
