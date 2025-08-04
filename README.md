@@ -3,3 +3,4 @@ Mowa o roszerzaniu się szarej strefy. I wielkiej biedzie. Braku pracy. Chce zap
 Na tym dysku będą wszystkie moje projekty z walką z biedą. 
 Ten dysk z CardComputerem będzie za miast lotto i kasyn. W wielkiej biedzie i braku pracy będzie on towarzyszyszć każdemu na ziemi. 
 Co do zostawienia kobiet to ćpalły każdą używke i nakotyk, odżywke kobiety w dredach i bluzach z kapturem na sport ubrane lub metale czy cyberpunki. Te w płaszczu futrze i kocu to abstynetki nie były też nachalnymi e mamami czy alilemnciarami to były panie.  
+Ktoś zlecił w NY Tims napisanie artykółów pszakwili aby nie produkować dla tej grupy ubrań lub dać im truciznę. 
