@@ -8,3 +8,4 @@ To wojskowi zabierają wygrane lotto i cześć wypłat z etatu i karzą pracowa�
 Ta wielka bieda w Tomaszowie Mazowieckim i styl PCK to afery stacji Rav i pana Buriana ze złomu. 
 Lotto nikt nie wygrywa bo mają ludzie dyplomy lewe. Dlatego daję kard computer na tą biedę za brak wygranej lotto. Przez lewe ustawy życia w biedzie. 
 Przez przekrent Harrp zimy akrtycznej też nie będzie bo chodzi o przerkent zrównoważonego rozwoju ekologiczno gospodarczego o zielone technologie chodzi i raczej zimy też nie będzie. Dlatego do tego kard computera dodam też moc zmiany pogody. 
+Lekarze za dużo oglądają reklamy piwa ciechan i reklamy trawisto. A za mało o post humanizmie. Za dużo WC. Są chorzy jak holendrzy i pomarańczowa strefa kup za 4 zł nie za 500 zł. Bo po co strzelać lotto. Pro deon. Jak z tymi wokalistaki metalu pro natura. Sayos intensiw natural 100 lat. 
