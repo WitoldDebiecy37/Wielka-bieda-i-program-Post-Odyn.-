@@ -9,3 +9,4 @@ Ta wielka bieda w Tomaszowie Mazowieckim i styl PCK to afery stacji Rav i pana B
 Lotto nikt nie wygrywa bo mają ludzie dyplomy lewe. Dlatego daję kard computer na tą biedę za brak wygranej lotto. Przez lewe ustawy życia w biedzie. 
 Przez przekrent Harrp zimy akrtycznej też nie będzie bo chodzi o przerkent zrównoważonego rozwoju ekologiczno gospodarczego o zielone technologie chodzi i raczej zimy też nie będzie. Dlatego do tego kard computera dodam też moc zmiany pogody. 
 Lekarze za dużo oglądają reklamy piwa ciechan i reklamy trawisto. A za mało o post humanizmie. Za dużo WC. Są chorzy jak holendrzy i pomarańczowa strefa kup za 4 zł nie za 500 zł. Bo po co strzelać lotto. Pro deon. Jak z tymi wokalistaki metalu pro natura. Sayos intensiw natural 100 lat. 
+To trzymanie się kórczliwe natury i oszczędzaczy i WC to lekarze z browaru ciechan i płynu do pukania Lódwik i afer Sayos natural vois haig. 
