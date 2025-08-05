@@ -11,3 +11,4 @@ Przez przekrent Harrp zimy akrtycznej też nie będzie bo chodzi o przerkent zr�
 Lekarze za dużo oglądają reklamy piwa ciechan i reklamy trawisto. A za mało o post humanizmie. Za dużo WC. Są chorzy jak holendrzy i pomarańczowa strefa kup za 4 zł nie za 500 zł. Bo po co strzelać lotto. Pro deon. Jak z tymi wokalistaki metalu pro natura. Sayos intensiw natural 100 lat. 
 To trzymanie się kórczliwe natury i oszczędzaczy i WC to lekarze z browaru ciechan i płynu do pukania Lódwik i afer Sayos natural vois haig. 
 Oszczędzacze i browar ciechan i marichuałana to rosja wymyśliła te afery. Aby sytetyczności nie wprowadzać do DNA mutacji i żyć tylko 100 lat z WC i pić ciechana i nzywac się maszyną oszczędzaczy. Lekarze ciechana to huligani. 
+Naturalna biologia to domena chorób i otyłości i moda na oszczędzacze i oszczędzaczyki i picie piwa Ciechan moda na WC przygody. Nie miłość w kocu z kobietą. 
