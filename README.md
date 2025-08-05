@@ -6,3 +6,4 @@ Co do zostawienia kobiet to ćpalły każdą używke i nakotyk, odżywke kobiety
 Ktoś zlecił w NY Tims napisanie artykółów pszakwili aby nie produkować dla tej grupy ubrań lub dać im truciznę dali im trucinę tym kobietom. W Policji też i urzędach szukałem tych modelek ale te panie albo były zająte albo coś brały i pachniały dragami. Te modelki z TV co znam się zdrowo odrzywiały i nosiły płaszcze futra płaszcze i koce zwoltex arosa. Chyba dali im leki. Teraz są same wariatki.
 To wojskowi zabierają wygrane lotto i cześć wypłat z etatu i karzą pracować na etacie wojskowi. I to wojskowi te nagrody wydają na ulice i remnonty szkuł i osiedli biedoty imperialenej. 
 Ta wielka bieda w Tomaszowie Mazowieckim i styl PCK to afery stacji Rav i pana Buriana ze złomu. 
+Lotto nikt nie wygrywa bo mają ludzie dyplomy lewe. Dlatego daję kard computer na tą biedę za brak wygranej lotto. Przez lewe ustawy życia w biedzie. 
