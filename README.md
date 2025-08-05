@@ -7,3 +7,4 @@ Ktoś zlecił w NY Tims napisanie artykółów pszakwili aby nie produkować dla
 To wojskowi zabierają wygrane lotto i cześć wypłat z etatu i karzą pracować na etacie wojskowi. I to wojskowi te nagrody wydają na ulice i remnonty szkuł i osiedli biedoty imperialenej. 
 Ta wielka bieda w Tomaszowie Mazowieckim i styl PCK to afery stacji Rav i pana Buriana ze złomu. 
 Lotto nikt nie wygrywa bo mają ludzie dyplomy lewe. Dlatego daję kard computer na tą biedę za brak wygranej lotto. Przez lewe ustawy życia w biedzie. 
+Przez przekrent Harrp zimy akrtycznej też nie będzie bo chodzi o przerkent zrównoważonego rozwoju ekologiczno gospodarczego o zielone technologie chodzi i raczej zimy też nie będzie. Dlatego do tego kard computera dodam też moc zmiany pogody. 
