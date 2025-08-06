@@ -28,3 +28,4 @@ Aby było pół darmo czy za darmo w brwach czerwieni i zieleni i żółci czy p
 Za tą biedę i te ceny i czekanie na majątek odpowiadają szpitale i przesi szpitali i prezesi NGO i NWO pomocy. 
 Ci aferzyści ustalili te niskie ceny to kali procesor ustawił tą biede dla inwestorów że żyje się zawsze jak ma się nawet dużo piniedzy to żyje się za 1000 zł miesięcznie nawet jak ma się 250 zł. Kali procesor wyrunuje ceny i starty finasowe. Nic nie zostawia maklerom i inwestorom. Liczy się tylko dla keliego pomocy procesor. Kali ma dauna. Nie dma o kasę maklerów inwestorów. 
 Tych dłógów zrobił czarany i super komputer kali procesor na globie suweren czarny z watykanu i kali procesor odpowiada za długi mklerów i inwestorów. 
+Dziś inwestorzy i ludzie co prowadzą stacje paliw to są życiowi nie udacznicy i gołodupcy ETF i maklerzy czy inwestorzy giełdowi bez kasy przez afery kali procesora pomocy procesora od zadłużania społecznego. 
