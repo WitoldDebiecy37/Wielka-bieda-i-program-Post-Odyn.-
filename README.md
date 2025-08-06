@@ -14,3 +14,4 @@ Oszczędzacze i browar ciechan i marichuałana to rosja wymyśliła te afery. Ab
 Naturalna biologia to domena chorób i otyłości i moda na oszczędzacze i oszczędzaczyki i picie piwa Ciechan moda na WC przygody. Nie miłość w kocu z kobietą. 
 Ci z PGE dawali za żony klony oliwi kali linux tej szmaty co chwali pogodę letnią i wieczną plarze. Kolejeny niepełnosprawny. Tak jak ci co mówią że bateria atomowa jest lepsza od akuli TPU w Tesli. 
 Takie afery. 
+Wasdy pomarańczowej rewolucji to zakaz podwyszania cen i ceł i nakaz utrzymania strefy po 4 zł za litr paliwa czy 1 zł. Maklerzy giełdowi nie mogą przez to nic zarobić pieniedzy na ETF, Obligacjach i akcjach czy lokatach czy kontach oszczędnościowych. Zarabia tylko firma co porzyczyła z banku kasę. To sa wielkie afery biedy sklepów po 4 zł i dabanie o dobre obyczaje. Te wracje równa się zero dla portfela. 
