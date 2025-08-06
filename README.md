@@ -1,4 +1,4 @@
-# Wielka-bieda-i-program-Post-Odyn.- Walka z biedą. Wielka bieda dla inewstorów i maklerów. 
+# Wielka-bieda-i-program-Post-Odyn.- Walka z biedą. Wielka bieda dla inewstorów i maklerów. Afery 112 pomocy czerwony krzyż wawf wawf. 
 Mowa o roszerzaniu się szarej strefy. I wielkiej biedzie. Braku pracy. Chce zaproponować dysk na biedę SSD dysk z internetem rzeczy procesro prawy centralny. Tam znajdziecie wszystkie projekty moje i rozdacie dyski ludziom ubogim będą tam te koce dla kobiet co kobiety robiły zadymy że koca nie mają i płaszcza. Będą sztabki złota złoto i biżuteria i inne rzeczy niezbedne do życia i pieniadze i inne rzeczy. Jak bieda się wzmorzy ludzie zaczną produkować ten dysk i rozdawać go w domu pomocy społecznej za miast lotto i pomaraniczowej rewolucji. Czas na szarą rewolucje. Banki upadają. Wszystko upada. 
 Na tym dysku będą wszystkie moje projekty z walką z biedą. 
 Ten dysk z CardComputerem będzie za miast lotto i kasyn. W wielkiej biedzie i braku pracy będzie on towarzyszyszć każdemu na ziemi. 
@@ -26,3 +26,4 @@ Przez tych cwaniaków NGO nie mzysków jest NWO oni to akubiato pomocy.
 Spawacze i przecinacze plazmowi i eksperci IT prze kali Procesor nie cieszą się popularnością i umiejnościami poniewarz wszyscy od nich wymagają kali procesor ceny kali procesora tabelki cen. 
 Aby było pół darmo czy za darmo w brwach czerwieni i zieleni i żółci czy pomarańczy tyńcza NGO i NWO. 
 Za tą biedę i te ceny i czekanie na majątek odpowiadają szpitale i przesi szpitali i prezesi NGO i NWO pomocy. 
+Ci aferzyści ustalili te niskie ceny to kali procesor ustawił tą biede dla inwestorów że żyje się zawsze jak ma się nawet dużo piniedzy to żyje się za 1000 zł miesięcznie nawet jak ma się 250 zł. Kali procesor wyrunuje ceny i starty finasowe. Nic nie zostawia maklerom i inwestorom. Liczy się tylko dla keliego pomocy procesor. Kali ma dauna. Nie dma o kasę maklerów inwestorów. 
