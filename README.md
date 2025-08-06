@@ -25,3 +25,4 @@ Ceny o jakie kłucą się ludzie na stacji bęzynowej i ETF funduszach i lokatac
 Przez tych cwaniaków NGO nie mzysków jest NWO oni to akubiato pomocy. 
 Spawacze i przecinacze plazmowi i eksperci IT prze kali Procesor nie cieszą się popularnością i umiejnościami poniewarz wszyscy od nich wymagają kali procesor ceny kali procesora tabelki cen. 
 Aby było pół darmo czy za darmo w brwach czerwieni i zieleni i żółci czy pomarańczy tyńcza NGO i NWO. 
+Za tą biedę i te ceny i czekanie na majątek odpowiadają szpitale i przesi szpitali i prezesi NGO i NWO pomocy. 
