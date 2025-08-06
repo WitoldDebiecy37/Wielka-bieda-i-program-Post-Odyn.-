@@ -24,3 +24,4 @@ Jak Litr gazu czy 25 cm 3 gazu będzie kosztować 1.50 zł za litr czy hot dog b
 Ceny o jakie kłucą się ludzie na stacji bęzynowej i ETF funduszach i lokatach i kontach nie pozwalją żyć i kupić Tesli dlatego stacje bęzynowe kłucą się tylko wawf wawf psy pomocy społecznej z czerwonego krzyża. Tesla też nigdy nie wyżyje jak będzie sprzedać w cenach pomocy społecznej egzmplarze Tesli markowego auta. Pomocy to złodzieje ze sklepów po 4 zł. 
 Przez tych cwaniaków NGO nie mzysków jest NWO oni to akubiato pomocy. 
 Spawacze i przecinacze plazmowi i eksperci IT prze kali Procesor nie cieszą się popularnością i umiejnościami poniewarz wszyscy od nich wymagają kali procesor ceny kali procesora tabelki cen. 
+Aby było pół darmo czy za darmo w brwach czerwieni i zieleni i żółci czy pomarańczy tyńcza. 
