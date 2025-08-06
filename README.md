@@ -13,3 +13,4 @@ To trzymanie się kórczliwe natury i oszczędzaczy i WC to lekarze z browaru ci
 Oszczędzacze i browar ciechan i marichuałana to rosja wymyśliła te afery. Aby sytetyczności nie wprowadzać do DNA mutacji i żyć tylko 100 lat z WC i pić ciechana i nzywac się maszyną oszczędzaczy. Lekarze ciechana to huligani. 
 Naturalna biologia to domena chorób i otyłości i moda na oszczędzacze i oszczędzaczyki i picie piwa Ciechan moda na WC przygody. Nie miłość w kocu z kobietą. 
 Ci z PGE dawali za żony klony oliwi kali linux tej szmaty co chwali pogodę letnią i wieczną plarze. Kolejeny niepełnosprawny. Tak jak ci co mówią że bateria atomowa jest lepsza od akuli TPU w Tesli. 
+Takie afery. 
