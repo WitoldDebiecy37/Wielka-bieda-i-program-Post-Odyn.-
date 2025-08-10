@@ -35,3 +35,4 @@ Jak cały czas będziecie mi kazać robić oszczędzacze to karze zamknąć cał
 Koljne afery i posty post mafi to czekanie długie na oszczędności i miłość na portalu randkowym to co już opisałem. Lepiej dać światu AI co wygeneruje bilon magicznie piniedzy i monet na wydatki niż polegać na bankach i para bankach. AI z możliwością że można wygenerować partnera życiowego żonę bez portali randkowych. I to rozwiąże problem tych postów. 
 Voisy te wykona jakiś bank. 
 Ci co odają ludzi na ubezpieczenie pójdą jako 1 na to ubezpieczenie bo przeszkadza im tytoń czy bluzgi.
+Komuchy mieszkają w wierzowcach i super metropoliajch z brakiem piniedzy w biedzie. Warszwa to super wieś metropolia czerwonych buraków sakrpet śmierdzących mocznikiem.     
