@@ -36,3 +36,4 @@ Koljne afery i posty post mafi to czekanie długie na oszczędności i miłość
 Voisy te wykona jakiś bank. 
 Ci co odają ludzi na ubezpieczenie pójdą jako 1 na to ubezpieczenie bo przeszkadza im tytoń czy bluzgi.
 Komuchy mieszkają w wierzowcach i super metropoliajch z brakiem piniedzy w biedzie. Warszwa to super wieś metropolia czerwonych buraków sakrpet śmierdzących mocznikiem.     
+PRL to bieda i smród. 
