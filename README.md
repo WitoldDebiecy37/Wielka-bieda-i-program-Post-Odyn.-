@@ -38,3 +38,4 @@ Ci co odają ludzi na ubezpieczenie pójdą jako 1 na to ubezpieczenie bo przesz
 Komuchy mieszkają w wierzowcach i super metropoliajch z brakiem piniedzy w biedzie. Warszwa to super wieś metropolia czerwonych buraków sakrpet śmierdzących mocznikiem.     
 PRL to bieda i smród. 
 Firma samsung i współka jest do likwidacji zgłosi się do syndyka o likwidacje i na komende WRC zgłoszą się pracownicy samsung i Lotto za afery z dostarczaniem kobiet hostes w cygeretki procesor. I za nie zabezpieczenie paczki że te kobiety wyszyszły i pracują w spale na etacie samsnug i te kobiety idą do uteylizacji do WRC. 
+Samsung i Lotto zapomniał za panu bogu się płaci pieniedze a nie jak bezdomnemu jezusowi daje się kobiety w cygeretki procesor. Samsung z lotto zgłosi się do syndyka o kartę likeiwidacji spułki za afery. 
