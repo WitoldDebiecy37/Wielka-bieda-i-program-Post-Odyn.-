@@ -43,3 +43,4 @@ Wesołowska zabrała ten cygeretki procesor jak by był jej własnością i przy
 Jak Wojsko znów podejmie zadania wojene ma podjąć decyzje o deka[itulacji armi na świecie bo nie chce żadnych wojen. Dodrukujcie pieniedzy ludziom i dajcie im oszczędności. Żadnych wojen zwierząnt. Gry tak. 
 Jak znów zrobicie wojny jak maszyny to znów nic nie dostaniecie nowego z fabryki nawet koca ciepłego. 
 To NGO i NWO chce wojen nie ja. To te fundacje odadzą pieniedze co od nas zabrały na tych chorych żołnierzy. Odadzą w ratach kasę jak będą chcieli wojen. 
+Jak Wojskowi znów będą jako lewy procesor wojenny to znów nic nie dostaną i odam wszystkie armie świata na tortury do lekarzy. Ja jako właściciel ziemi i kosmosu jezus to bezdomny nie zgadzam się na żadne wojny. Kali znów ujrzy szpitale i torturownie jak się nie uspokoi z jezusem. 
