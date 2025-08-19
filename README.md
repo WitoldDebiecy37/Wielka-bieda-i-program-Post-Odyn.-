@@ -45,3 +45,4 @@ Jak znów zrobicie wojny jak maszyny to znów nic nie dostaniecie nowego z fabry
 To NGO i NWO chce wojen nie ja. To te fundacje odadzą pieniedze co od nas zabrały na tych chorych żołnierzy. Odadzą w ratach kasę jak będą chcieli wojen. 
 Jak Wojskowi znów będą jako lewy procesor wojenny to znów nic nie dostaną i odam wszystkie armie świata na tortury do lekarzy. Ja jako właściciel ziemi i kosmosu jezus to bezdomny nie zgadzam się na żadne wojny. Kali znów ujrzy szpitale i torturownie jak się nie uspokoi z jezusem. 
 Nalerzy procesorem szyfrować dane przez SSH tunele TPM i tor i AES RSA klucz 1 razowy OTP z blokowaniem IP i mac adres hakerów i sytsmeów hakerskich.  
+Tym aferzystom i kaliemu co paraliżuje serwery lotto i NGO dajcie szepsa i sprita a lotto niech odadzą nam ludziom na oszczędności i życie i dodjacie kali linux i whonix i hakerskie systemy do kwarantany antywirusa. To nigdy się nie włamią nawet meta sploit. 
