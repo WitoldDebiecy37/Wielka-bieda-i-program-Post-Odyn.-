@@ -55,3 +55,4 @@ Kali i te niepłęnosprawne agenty myślą że dostaną z populacji po 100 kóre
 Przez takich jak kali po tem jest bieda i marudzą ludzie że nie ma na ulicy czy w domu żadnej modelki do umawainia się na randki bo wszystkie modelki poszły na serwis do wc vois z populacji przez niepełnosprawnego kaliego umysłowo. Dlatego będę roboty 1 razowe. Jak zapli się vois to trzeba kupić nowy vois z robotem. 
 Dla Kaliego niepełnosprawnego umysłowo kobieta to WC tolata i wc robot do sprzątania wc czy robot 1 razowy do ciąży. Kali to upośledzony procesor każda kobieta dla kaliego to 1 razowy nabój. 
 Wszyscy ze 112 traktują kobiety jak 1 razowe naboje. Kali to daun prezes 112 ligi narodów WHO kiedyś linux wyszedł z super komputera z linuxem. Dlatego oni dla mnie to są nie potrzebni.   
+Dlatego kali aferzysta z WHO ten co wywowała 2 wojny światowe na świecie 100 lat temu może szukać z elitami establiszmentu pracy na ulicy jako pucybut a nie jako prezes WHO.  
