@@ -98,3 +98,4 @@ Biede i winy to trzeba zwalać na kaliego.
 Jak żyły te kobiety w kocu to było modne więcej czasu przenzaczenie na imprezy niż na prace społeczne. 
 Mniej czasu tracono na kościół i prace społeczne. 
 Hitler i armia Hitlera to Marionetki kaliego i tych z Marvela co z nas podatki ściągają. 
+Politycy to marionetki w rękach kaliego i postaci z Marvela. 
