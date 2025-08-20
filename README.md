@@ -101,3 +101,4 @@ Hitler i armia Hitlera to Marionetki kaliego i tych z Marvela co z nas podatki �
 Politycy to marionetki w rękach kaliego i postaci z Marvela. 
 Tymi trolami jest Kali i Marvel postacie. 
 Kali i Marvel to ci przestępcy co robili te wojny gdzie modelki w kocu były traktowane jak karton na szambo za czasów wojen.  
+Czemu mówię że to Kali i Marvel bo ci ludzie mają post moce super bocheterów np.: Telekinezę. Kiedyś w Carton Network pokazliwali życie gwiazd z wybiegu modelingu modelki. 
