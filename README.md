@@ -69,3 +69,4 @@ To wg tajnej histori to Kali robił zadymy aby każdy był na etacie w pracy czy
 Hitler to tylko generał. Prezes i właściciel zadym to Kali i operator programu post odyn to też kali kali to ta wielka bieda. I cykliczne zadymy. 
 Gdyby nie afery kaliego to nawet sławny X men wolverin by nie był słany bo by miał z Kitty pryd normalne życie bez mocy. 
 Kali to ten tajny prezes tych afery to ta słyna szara eminencja stojąca za PRL i za plecami Gierka w USA czy stojąca za plecami aktorów sławnych i rodziny królewskiej. 
+Kali powował gestapo i FBI. 
