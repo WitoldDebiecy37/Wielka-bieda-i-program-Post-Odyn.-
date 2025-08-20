@@ -96,3 +96,4 @@ Laski w kocu były tak popularne jak dziś laski dresów post mafi kaliego.
 Wszystkie kórwy zekstreminował kali ze swimi dresami w obazach złagady. Zostawił swoje tylko baby w dresie i folk klorze. 
 Biede i winy to trzeba zwalać na kaliego. 
 Jak żyły te kobiety w kocu to było modne więcej czasu przenzaczenie na imprezy niż na prace społeczne. 
+Mniej czasu tracono na kościół i prace społeczne. 
