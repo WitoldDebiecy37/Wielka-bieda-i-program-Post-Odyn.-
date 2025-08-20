@@ -51,3 +51,4 @@ Kali bierze modelki do woisów wc tolaty na serwistana. Kali to jest debil zamia
 Kali jest upośledzonym umysłowo debilem i idiotom. 
 Kali złóżył te w kocu kobiety do tolate voisów dla establiszmentu to nie były roboty tylko żywe kobiety. Tyle z grzechów kaliego.  
 Ci co zatrudniają żywą osobę do pracy przy WC czy do pracy na stacji bezynowej to niepełnosprawni umysłowo. 
+Kali i te niepłęnosprawne agenty myślą że dostaną z populacji po 100 kórew do oszczędzaczyka bo im się nalerzy kórwa do dymania nie kali dostanie z tajnikami maszyny roboty z plastiku do sodomi i gomori i wc. 
