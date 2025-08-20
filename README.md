@@ -49,3 +49,4 @@ Tym aferzystom i kaliemu co paraliżuje serwery lotto i NGO dajcie szepsa i spri
 Kali ten niepełsnoprawny lewak bierzez do produkcji oszczędzaczy czyli wc procesorów z tolateom AI na sprzątacza tolaty zawsze komuś zabiera żonę ostanio zabiera z carton netrwork cartony żywca bierze nie androida Dawida plastika.  
 Kali bierze modelki do woisów wc tolaty na serwistana. Kali to jest debil zamiast robota z plastiku bierze prawdziwego człowieka do niewoli. 
 Kali jest upośledzonym umysłowo debilem i idiotom. 
+Kali złóżył te w kocu kobiety do tolate voisów dla establiszmentu to nie były roboty tylko żywe kobiety. Tyle z grzechów kaliego.  
