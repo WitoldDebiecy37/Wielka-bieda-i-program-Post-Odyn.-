@@ -99,3 +99,4 @@ Jak żyły te kobiety w kocu to było modne więcej czasu przenzaczenie na impre
 Mniej czasu tracono na kościół i prace społeczne. 
 Hitler i armia Hitlera to Marionetki kaliego i tych z Marvela co z nas podatki ściągają. 
 Politycy to marionetki w rękach kaliego i postaci z Marvela. 
+Tymi trolami jest Kali i Marvel postacie. 
