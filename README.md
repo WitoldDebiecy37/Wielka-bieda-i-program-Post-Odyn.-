@@ -85,3 +85,4 @@ To kali nakręcił z żydami na wojny Hitlera chyba telekinezą.
 To kali kręci lichwe na mieszkaniach i domach i produkatach bankowych oszczędności zabiera kali i to kali zabiera kasę z lotto i wypłaty i z renty na swoje konta bankowe to jego lichwa. 
 Kali to też organiazator wszystkich wielkich wojen światowych 1 i 2 i też 3 wojny światowej. 
 Czemu to mówię bo powinienm mieć 25000 zł renty czy 30000 zł renty a mam przez kaliego tylko 2300 zł miesięcznie renty a nie 25000 zł czy 30000 zł miesięcznie renty. 
+Posty na ziemi dla ziemian to wymyślił kali tą biedę z postami. Kali to szara eminecja. 
