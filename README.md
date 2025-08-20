@@ -77,3 +77,4 @@ Sprawy dla MALONOWSKIEGO czyli rozwody to też robota kaliego i żydów gry woje
 Kali też kazał wszystkim bawić w użędy, korporacje i git hub co pracuje na etacie z urzędami. Kiedyś dawno temu nie było kaliego i nikt nie pracował na etacie bez wojen i ninawiści. To że kiedyś można było mieć za darmo żonę a dziś przez kaliego żony nie można mieć bo trzeba założyć firma i spłacać posag na rodziców żony czyli ich córki za żone to posag i firmy i otwieranie firmy wymyślił kali. 
 Opłatę za branie żony za żone od 1 z rodzin na ziemi wymyślił tą opłatę kali od czerwonych opłata ta to praca naszej formy i zarobki czy kredty na uszczenie opłaty na posag dla rodziców. Ten wymysł posagu to kali. 
 Bez opłaty posagu żona to porzyczka na 20 lub 30 czy 50 lat. Posag nawet obowizuje biologiczne voisy w pilotach z AI. A voisy te powiny być bez posagu sprzedane za 1 zł i 30 zł opłata za paczkę kórjerską.  
+Te wszystkie choroby i podatki wymysłił kali. 
