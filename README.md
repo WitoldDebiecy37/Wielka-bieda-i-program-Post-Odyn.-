@@ -106,3 +106,4 @@ Kiedyś Carton Network było pełne bajek z życiem modelek. A jetix pełen baje
 Afery w Smoleńsku to pokaz możliwość harrp lub osoby z mocą maid control i te obecne trudne sprawy też czyli rozwody i niechciane dzieci. 
 Ta drożyzna cen na świecie to kali i marvel po ich pojawieniu się jako szrych eminencji były wojny i drożyzna. 
 Teraz po wojnie urodziło się dużo bochaterów marvela kaliego, dresów i żołnierzyków niedzielnych. 
+Handlarze przy tych dresach są tylko nikim z kasą. Bo ci z mocami dresy regulują historie świata od zniknięcie modelek w kocu.  
