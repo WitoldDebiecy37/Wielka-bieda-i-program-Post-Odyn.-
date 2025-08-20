@@ -108,3 +108,4 @@ Ta drożyzna cen na świecie to kali i marvel po ich pojawieniu się jako szrych
 Teraz po wojnie urodziło się dużo bochaterów marvela kaliego, dresów i żołnierzyków niedzielnych. 
 Handlarze przy tych dresach są tylko nikim z kasą. Bo ci z mocami dresy regulują historie świata od zniknięcie modelek w kocu.  
 Te modelki co były popularne w karzdym mieście one były nie było kiedyś nawet meneli tylko one były na ulicach a obecnie dużo dresów i meneli kali czy x men, ubierały się w te same ciuchy i koce jak Pam Hetlinger. 
+Przygody lombardzistów to przygody Blazkowicza. 
