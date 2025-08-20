@@ -94,3 +94,4 @@ Przed postaciami z Marvela i kalim i dresami. Popularne na codzień laski to by�
 Politycy to pionki telkinetyczne w umyśle kaliego mocy telkinezy kaliego maind control. 
 Laski w kocu były tak popularne jak dziś laski dresów post mafi kaliego. 
 Wszystkie kórwy zekstreminował kali ze swimi dresami w obazach złagady. Zostawił swoje tylko baby w dresie i folk klorze. 
+Biede i winy to trzeba zwalać na kaliego. 
