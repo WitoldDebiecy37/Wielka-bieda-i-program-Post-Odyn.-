@@ -83,3 +83,4 @@ Kiedyś bez kliego za mieszkanie płaciło się 100 zł na własność wpisowe c
 To kali jest rabuś ta szara emincja to złodziej podatkowy i mafia. 
 To kali nakręcił z żydami na wojny Hitlera chyba telekinezą. 
 To kali kręci lichwe na mieszkaniach i domach i produkatach bankowych oszczędności zabiera kali i to kali zabiera kasę z lotto i wypłaty i z renty na swoje konta bankowe to jego lichwa. 
+Kali to też organiazator wszystkich wielkich wojen światowych 1 i 2 i też 3 wojny światowej. 
