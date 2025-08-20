@@ -50,3 +50,4 @@ Kali ten niepełsnoprawny lewak bierzez do produkcji oszczędzaczy czyli wc proc
 Kali bierze modelki do woisów wc tolaty na serwistana. Kali to jest debil zamiast robota z plastiku bierze prawdziwego człowieka do niewoli. 
 Kali jest upośledzonym umysłowo debilem i idiotom. 
 Kali złóżył te w kocu kobiety do tolate voisów dla establiszmentu to nie były roboty tylko żywe kobiety. Tyle z grzechów kaliego.  
+Ci co zatrudniają żywą osobę do pracy przy WC czy do pracy na stacji bezynowej to niepełnosprawni umysłowo. 
