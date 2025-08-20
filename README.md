@@ -93,3 +93,4 @@ Kity pryd skoniczyła w reklamie cocolino. Nie jest już w post mafi. Kitty Pryd
 Przed postaciami z Marvela i kalim i dresami. Popularne na codzień laski to były w swetrze, polarze, płaszczu długim wełnianym miłym do kostki i długim sztucznym futrze długim do kostki kocu szalu i kocu zwoltex arosa 220 cm 240 cm to była każda szanująca się laska w kocu na agrawkę. 
 Politycy to pionki telkinetyczne w umyśle kaliego mocy telkinezy kaliego maind control. 
 Laski w kocu były tak popularne jak dziś laski dresów post mafi kaliego. 
+Wszystkie kórwy zekstreminował kali ze swimi dresami w obazach złagady. Zostawił swoje tylko baby w dresie i folk klorze. 
