@@ -87,3 +87,4 @@ Kali to też organiazator wszystkich wielkich wojen światowych 1 i 2 i też 3 w
 Czemu to mówię bo powinienm mieć 25000 zł renty czy 30000 zł renty a mam przez kaliego tylko 2300 zł miesięcznie renty a nie 25000 zł czy 30000 zł miesięcznie renty. 
 Posty na ziemi dla ziemian to wymyślił kali tą biedę z postami. Kali to szara eminecja. 
 Kali wymyślił postacie Marvela i kali jest 1 postacią iluminatów z Marvela. 
+Niechciane rozwody i niechciane dzieci to też kali jego robota. 
