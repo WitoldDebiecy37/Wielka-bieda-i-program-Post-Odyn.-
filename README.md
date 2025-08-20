@@ -74,4 +74,4 @@ To kali kazał prawdziwym kobietom doszywać penisy przez nerona i herona w izra
 Tam gdzie jest wojna tam maczał łapy w niej Kali i to kali rozkazał wojny robić nawet na inych planetach też każe mordować kali on to ten autyzm pucybuta i tego establiszmentu to te menty. 
 Te gry wojne o biedzie i wojnie to rozkazał robić w życiu i na cd na PC kali. 
 Sprawy dla MALONOWSKIEGO czyli rozwody to też robota kaliego i żydów gry wojene szczelanki na komputer i wojny w życiu to też kali jego rozkazy. 
-Kali też kazał wszystkim bawić w użędy, korporacje i git hub co pracuje na etacie z urzędami. Kiedyś dawno temu nie było kaliego i nikt nie pracował na etacie bez wojen i ninawiści. 
+Kali też kazał wszystkim bawić w użędy, korporacje i git hub co pracuje na etacie z urzędami. Kiedyś dawno temu nie było kaliego i nikt nie pracował na etacie bez wojen i ninawiści. To że kiedyś można było mieć za darmo żonę a dziś przez kaliego żony nie można mieć bo trzeba założyć firma i spłacać posag na rodziców żony czyli ich córki za żone to posag i firmy i otwieranie firmy wymyślił kali. 
