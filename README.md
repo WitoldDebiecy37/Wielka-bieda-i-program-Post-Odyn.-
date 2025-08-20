@@ -75,3 +75,4 @@ Tam gdzie jest wojna tam maczał łapy w niej Kali i to kali rozkazał wojny rob
 Te gry wojne o biedzie i wojnie to rozkazał robić w życiu i na cd na PC kali. 
 Sprawy dla MALONOWSKIEGO czyli rozwody to też robota kaliego i żydów gry wojene szczelanki na komputer i wojny w życiu to też kali jego rozkazy. 
 Kali też kazał wszystkim bawić w użędy, korporacje i git hub co pracuje na etacie z urzędami. Kiedyś dawno temu nie było kaliego i nikt nie pracował na etacie bez wojen i ninawiści. To że kiedyś można było mieć za darmo żonę a dziś przez kaliego żony nie można mieć bo trzeba założyć firma i spłacać posag na rodziców żony czyli ich córki za żone to posag i firmy i otwieranie firmy wymyślił kali. 
+Opłatę za branie żony za żone od 1 z rodzin na ziemi wymyślił tą opłatę kali od czerwonych opłata ta to praca naszej formy i zarobki czy kredty na uszczenie opłaty na posag dla rodziców. Ten wymysł posagu to kali. 
