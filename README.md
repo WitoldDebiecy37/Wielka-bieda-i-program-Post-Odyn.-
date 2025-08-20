@@ -57,3 +57,4 @@ Dla Kaliego niepełnosprawnego umysłowo kobieta to WC tolata i wc robot do sprz
 Wszyscy ze 112 traktują kobiety jak 1 razowe naboje. Kali to daun prezes 112 ligi narodów WHO kiedyś linux wyszedł z super komputera z linuxem. Dlatego oni dla mnie to są nie potrzebni.   
 Dlatego kali aferzysta z WHO ten co wywowała 2 wojny światowe na świecie 100 lat temu może szukać z elitami establiszmentu pracy na ulicy jako pucybut a nie jako prezes WHO.  
 Jak kali zostanie z nimi pucybutami to nikt już im nie zaufa i nikt ich nie mianuje prezesami. To przez nich jest ta bieda. Bo podsłuchałem romzowy kiedyś pewnych ludzi. 
+To kali wywoałał prl i machloje że jest komuna i bieda i przekrenty polegające na tym że masa osób jest w domu i żyje w biedzie ma tylko 1 torbe z ubraniami i żyje w minimaliżmie religijnej polityki minimalizmu i biedy jak jest w religiach. 
