@@ -63,3 +63,4 @@ Kali do żabek i sklepów i stacji bezynowych ludziom zabiera żony za 1000 zł 
 To kali karze ludzi jednostki zatrudniać jako 1 serwery umysłowe do tego super komputera etatyzmu zwanego komuną na utrzymywanie firm w każdym punkcie na świecie na ziemi.   
 To całe pogotowie ten cały komputer 112 wymyślił kali to kali wymyślił pogotowie na etacie każdy. To wina kaliego. Bo robotów nie ztarudnili z plastiku na akumulator czy reaktor łukowy. 
 Wojny 2 światowe to komuchy wywołay bo ludziom nie chciało się iść na etat na nakaz pracy na 47 lat na etacie.  
+Przygody słynego Blazkowicza to pana wojskowego ameryaknina co bił po głowie za to że ludzie woleli dom od etatu w pracy to on szedł na wojnę z tymi ludzmi o tym są gry historyczne walczyli o etatyzm PRL.  
