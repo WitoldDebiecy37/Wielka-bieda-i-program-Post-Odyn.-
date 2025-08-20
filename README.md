@@ -81,3 +81,4 @@ Te wszystkie choroby i podatki wymysłił kali.
 Kiedyś bez kaliego. Za żone z populacji płaciło się podatek 2 zł. Za vois 31 zł z opłatą kurjerską 30 zł i 1 zł za vois AI pilot czy voisy do składania vois. 
 Kiedyś bez kliego za mieszkanie płaciło się 100 zł na własność wpisowe cała opłata a za dom 1000 zł i do tego odestki były przy 1000 zł już 250 zł na miesiąc od 1000 zł w banku od każdego 1000 zł po 250 zł. 
 To kali jest rabuś ta szara emincja to złodziej podatkowy i mafia. 
+To kali nakręcił z żydami na wojny Hitlera. 
