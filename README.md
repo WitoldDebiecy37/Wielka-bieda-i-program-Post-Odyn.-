@@ -72,3 +72,4 @@ Kali to ten tajny prezes tych afery to ta słyna szara eminencja stojąca za PRL
 Kali powował gestapo i FBI. 
 To kali kazał prawdziwym kobietom doszywać penisy przez nerona i herona w izraelu a odcinać facetom penisy. Poczatki afer LGBT. 
 Tam gdzie jest wojna tam maczał łapy w niej Kali i to kali rozkazał wojny robić nawet na inych planetach też każe mordować kali on to ten autyzm pucybuta i tego establiszmentu to te menty. 
+Te gry wojne o biedzie i wojnie to rozkazał robić w życiu i na cd na PC kali. 
