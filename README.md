@@ -62,3 +62,4 @@ Kali i jego establiszment nawet wam wybiera ojca dyrketroa i papierza i ustala j
 Kali do żabek i sklepów i stacji bezynowych ludziom zabiera żony za 1000 zł miesiecznie do pracy w tych firmach i utrzymania tych firm nie zatrudnia robotów znów będą afery jak on zatrudni ludzi jako voisy. To znów na sympati nie będzie znikim można pogadać bo wszyscy są w pogotowiu w pracy nie w domu na wolnym czasie od pracy tylko znów na etacie w 112. 
 To kali karze ludzi jednostki zatrudniać jako 1 serwery umysłowe do tego super komputera etatyzmu zwanego komuną na utrzymywanie firm w każdym punkcie na świecie na ziemi.   
 To całe pogotowie ten cały komputer 112 wymyślił kali to kali wymyślił pogotowie na etacie każdy. To wina kaliego. Bo robotów nie ztarudnili z plastiku na akumulator czy reaktor łukowy. 
+Wojny 2 światowe to komuchy wywołay bo ludziom nie chciało się iść na etat na nakaz pracy na 47 lat na etacie.  
