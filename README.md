@@ -53,3 +53,4 @@ Kali złóżył te w kocu kobiety do tolate voisów dla establiszmentu to nie by
 Ci co zatrudniają żywą osobę do pracy przy WC czy do pracy na stacji bezynowej to niepełnosprawni umysłowo. 
 Kali i te niepłęnosprawne agenty myślą że dostaną z populacji po 100 kórew do oszczędzaczyka bo im się nalerzy kórwa do dymania nie kali dostanie z tajnikami maszyny roboty z plastiku do sodomi i gomori i wc. 
 Przez takich jak kali po tem jest bieda i marudzą ludzie że nie ma na ulicy czy w domu żadnej modelki do umawainia się na randki bo wszystkie modelki poszły na serwis do wc vois z populacji przez niepełnosprawnego kaliego umysłowo. Dlatego będę roboty 1 razowe. Jak zapli się vois to trzeba kupić nowy vois z robotem. 
+Dla Kaliego niepełnosprawnego umysłowo kobieta to WC tolata i wc robot do sprzątania wc czy robot 1 razowy do ciąży. Kali to upośledzony procesor każda kobieta dla kaliego to 1 razowy nabój. 
