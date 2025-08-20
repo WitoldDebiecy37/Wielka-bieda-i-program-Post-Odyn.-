@@ -78,3 +78,4 @@ Kali też kazał wszystkim bawić w użędy, korporacje i git hub co pracuje na 
 Opłatę za branie żony za żone od 1 z rodzin na ziemi wymyślił tą opłatę kali od czerwonych opłata ta to praca naszej formy i zarobki czy kredty na uszczenie opłaty na posag dla rodziców. Ten wymysł posagu to kali. 
 Bez opłaty posagu żona to porzyczka na 20 lub 30 czy 50 lat. Posag nawet obowizuje biologiczne voisy w pilotach z AI. A voisy te powiny być bez posagu sprzedane za 1 zł i 30 zł opłata za paczkę kórjerską.  
 Te wszystkie choroby i podatki wymysłił kali. 
+Kiedyś bez kaliego. Za żone z populacji płaciło się podatek 2 zł. Za vois 31 zł z opłatą kurjerską 30 zł i 1 zł za vois AI pilot czy voisy do składania vois. 
