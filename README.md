@@ -71,3 +71,4 @@ Gdyby nie afery kaliego to nawet sławny X men wolverin by nie był słany bo by
 Kali to ten tajny prezes tych afery to ta słyna szara eminencja stojąca za PRL i za plecami Gierka w USA czy stojąca za plecami aktorów sławnych i rodziny królewskiej. 
 Kali powował gestapo i FBI. 
 To kali kazał prawdziwym kobietom doszywać penisy przez nerona i herona w izraelu a odcinać facetom penisy. Poczatki afer LGBT. 
+Tam gdzie jest wojna tam maczał łapy w niej Kali i to kali rozkazał wojny robić nawet na inych planetach też każe mordować kali on to ten autyzm pucybuta i tego establiszmentu to te menty. 
