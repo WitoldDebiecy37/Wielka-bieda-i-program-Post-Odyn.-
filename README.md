@@ -104,3 +104,4 @@ Kali i Marvel to ci przestępcy co robili te wojny gdzie modelki w kocu były tr
 Czemu mówię że to Kali i Marvel bo ci ludzie mają post moce super bocheterów np.: Telekinezę. Kiedyś w Carton Network pokazliwali życie gwiazd z wybiegu modelingu modelki. 
 Kiedyś Carton Network było pełne bajek z życiem modelek. A jetix pełen bajek o modelkach co kosmos podrużowały i ich rodziny. 
 Afery w Smoleńsku to pokaz możliwość harrp lub osoby z mocą maid control i te obecne trudne sprawy też czyli rozwody i niechciane dzieci. 
+Ta drożyzna cen na świecie to kali i marvel po ich pojawieniu się jako szrych eminencji były wojny i drożyzna. 
