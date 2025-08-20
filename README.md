@@ -58,3 +58,4 @@ Wszyscy ze 112 traktują kobiety jak 1 razowe naboje. Kali to daun prezes 112 li
 Dlatego kali aferzysta z WHO ten co wywowała 2 wojny światowe na świecie 100 lat temu może szukać z elitami establiszmentu pracy na ulicy jako pucybut a nie jako prezes WHO.  
 Jak kali zostanie z nimi pucybutami to nikt już im nie zaufa i nikt ich nie mianuje prezesami. To przez nich jest ta bieda. Bo podsłuchałem romzowy kiedyś pewnych ludzi. 
 To kali wywoałał prl i machloje że jest komuna i bieda i przekrenty polegające na tym że masa osób jest w domu i żyje w biedzie ma tylko 1 torbe z ubraniami i żyje w minimaliżmie religijnej polityki minimalizmu i biedy jak jest w religiach. 
+Kali i jego establiszment nawet wam wybiera ojca dyrketroa i papierza i ustala jaki procent będzie dochodowa dewidanda dla populacji inwstorów. 
