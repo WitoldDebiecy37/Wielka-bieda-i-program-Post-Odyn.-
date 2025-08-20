@@ -89,4 +89,4 @@ Posty na ziemi dla ziemian to wymyślił kali tą biedę z postami. Kali to szar
 Kali wymyślił postacie Marvela i kali jest 1 postacią iluminatów z Marvela. 
 Niechciane rozwody i niechciane dzieci to też kali jego robota. 
 Postacie Marvela by nie istniały razem z tymi podatkami gdyby nie narodziny kaliego telekinetyka maind control. 
-Kity pryd skoniczyła w reklamie cocolino. Nie jest już w post mafi. 
+Kity pryd skoniczyła w reklamie cocolino. Nie jest już w post mafi. Kitty Pryd gra w reklamie cocolino płynu do odświerzania kocy zwoltex arosa a żadna kobieta już nie nosi tych kocy bo Kali zrobił nagonke na te koce i kobiety w kocu. Za czasów gy kaliego nie było na ziemi a wszystko było tanie to w kocu była każda laska i płaszczu i płaszczu futrze długim do kostki. Dziś są dresy bo dresy wyprodukowała Kali. 
