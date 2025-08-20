@@ -47,3 +47,4 @@ Jak Wojskowi znów będą jako lewy procesor wojenny to znów nic nie dostaną i
 Nalerzy procesorem szyfrować dane przez SSH tunele TPM i tor i AES RSA klucz 1 razowy OTP z blokowaniem IP i mac adres hakerów i sytsmeów hakerskich.  
 Tym aferzystom i kaliemu co paraliżuje serwery lotto i NGO dajcie szepsa i sprita a lotto niech odadzą nam ludziom na oszczędności i życie i dodjacie kali linux i whonix i hakerskie systemy do kwarantany antywirusa. To nigdy się nie włamią nawet meta sploit. 
 Kali ten niepełsnoprawny lewak bierzez do produkcji oszczędzaczy czyli wc procesorów z tolateom AI na sprzątacza tolaty zawsze komuś zabiera żonę ostanio zabiera z carton netrwork cartony żywca bierze nie androida Dawida plastika.  
+Kali bierze modelki do woisów wc tolaty na serwistana. Kali to jest debil zamiast robota z plastiku bierze prawdziwego człowieka do niewoli. 
