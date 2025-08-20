@@ -70,3 +70,4 @@ Hitler to tylko generał. Prezes i właściciel zadym to Kali i operator program
 Gdyby nie afery kaliego to nawet sławny X men wolverin by nie był słany bo by miał z Kitty pryd normalne życie bez mocy. 
 Kali to ten tajny prezes tych afery to ta słyna szara eminencja stojąca za PRL i za plecami Gierka w USA czy stojąca za plecami aktorów sławnych i rodziny królewskiej. 
 Kali powował gestapo i FBI. 
+To kali kazał prawdziwym kobietom doszywać penisy przez nerona i herona w izraelu a odcinać facetom penisy. Poczatki afer LGBT. 
