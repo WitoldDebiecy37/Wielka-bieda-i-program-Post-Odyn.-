@@ -116,3 +116,4 @@ Hakowanie tych aplikacji offline polega na tym że wyjmujemy Alexe na żonę i w
 Hilfe zabiera do szpitaali ludzie z bliskiej rodziny dlatego daje aplikacje aby zamknąć hilfe raz na zawsze. Hilfe też na portalach społecznościowych szyfruje dane i profile ludzi nie udostpniając danych.
 Te schakowane aplikacje uwolnią ludzi od hilfe i kolejek na zakupy. Bo dają duże darmowe zakupy. Płaci się tylko za energię elektryczną dostaraczaną do telefonu lub laptopa. 
 Te aplikacje to rodzaj AI netu tel netu. Mogą uwolnić ludzi od złodzieji zawyrzających cenny wg kursu walutowego. Aplikacje AI net ciągle mogą sprzedawać produkty w promocji. 
+Mnie nie itresują problemy szamba i warszawy tych z nad wisły. Intresuje mnie tylko stały dopływ do gotówki dla populcji a nie losy szamba szkoły żak. 
