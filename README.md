@@ -118,3 +118,4 @@ Te schakowane aplikacje uwolnią ludzi od hilfe i kolejek na zakupy. Bo dają du
 Te aplikacje to rodzaj AI netu tel netu. Mogą uwolnić ludzi od złodzieji zawyrzających cenny wg kursu walutowego. Aplikacje AI net ciągle mogą sprzedawać produkty w promocji. 
 Mnie nie itresują problemy szamba i warszawy tych z nad wisły. Intresuje mnie tylko stały dopływ do gotówki dla populcji a nie losy szamba szkoły żak. 
 Mnie nie interesują zwody porzydku publicznego pani Kristiany Loken a co z tym winem czy z tym szambem. Mnie interesuje tylko to aby karzdy miał pieniądze i zawsze potrafił się wykupić z policyjnej niewoli. 
+Mnie intresuje aby karzdy miał w domu luxus. 
