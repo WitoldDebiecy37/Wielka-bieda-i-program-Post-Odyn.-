@@ -115,3 +115,4 @@ Dodatkowo do drukarek kwantowych można do Aplikacji dodać robotykę robotów A
 Hakowanie tych aplikacji offline polega na tym że wyjmujemy Alexe na żonę i wstawiamy AI robota atlasa z aplikacji co nam zbuduje asortyment z portali na APK. 
 Hilfe zabiera do szpitaali ludzie z bliskiej rodziny dlatego daje aplikacje aby zamknąć hilfe raz na zawsze. Hilfe też na portalach społecznościowych szyfruje dane i profile ludzi nie udostpniając danych.
 Te schakowane aplikacje uwolnią ludzi od hilfe i kolejek na zakupy. Bo dają duże darmowe zakupy. Płaci się tylko za energię elektryczną dostaraczaną do telefonu lub laptopa. 
+Te aplikacje to rodzaj AI netu tel netu. Mogą uwolnić ludzi od złodzieji zawyrzających cenny wg kursu walutowego. Aplikacje AI net ciągle mogą sprzedawać produkty w promocji. 
