@@ -125,3 +125,4 @@ Innego post humanizmu jak voisy i zappery nie można wymyślić dla ludzi. Dost�
 To żydowskie wężowe plemie chce iść na wojne. Jakby dać im card computer vois ze sklepami i płastnościami kartą to zniknie bieda bo sklepy jakie będą to lidl i cerffur i kaufland czy biedronka czy inne sklepy. 
 Wężowemu pemieniu trzeba dać leki aby się uspokoili i nie szli na wojne.  
 A Historia się wyprostuje w przyszłości na prosto. 
+Można zlecić Nav i opiece społecznej budowę hali do produkcji card computerów i rozdać w ramach opieki medycznej czy opieki społecznej za darmo to komputery z zapasami do życia  nawet nowymi telefonami. 
