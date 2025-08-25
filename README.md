@@ -122,3 +122,4 @@ Mnie intresuje aby karzdy miał w domu luxus.
 Co do PGE polecam instalacje off girdowe bez kabli PGE. 
 Tą wielką biedę można rozwiązać prcesorami AI-Net z radio drukarkami kwantowymi np.: produkcja wina, papierosów i kocy i ubrań czy dań w słoiku.  
 Innego post humanizmu jak voisy i zappery nie można wymyślić dla ludzi. Dostę do zapasów może być z voisów. Ale to są duże koszty utrzymania infrastruktury i potrzeba zbiurek pieniedzy i dofinasowania z uni na ten projekt aby karzdy miał dużo w voisie tyle ile chce mieć.  Obecne voisy jakie są to visy hakerskie czyli voisy od kradzieży danych a nie voisy do pomagania ludziom. 
+To żydowskie wężowe plemie chce iść na wojne. Jakby dać im card computer vois ze sklepami i płastnościami kartą to zniknie bieda bo sklepy jakie będą to lidl i cerffur i kaufland czy biedronka czy inne sklepy. 
