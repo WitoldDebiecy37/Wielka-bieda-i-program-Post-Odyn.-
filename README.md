@@ -120,3 +120,4 @@ Mnie nie itresują problemy szamba i warszawy tych z nad wisły. Intresuje mnie 
 Mnie nie interesują zwody porzydku publicznego pani Kristiany Loken a co z tym winem czy z tym szambem. Mnie interesuje tylko to aby karzdy miał pieniądze i zawsze potrafił się wykupić z policyjnej niewoli. 
 Mnie intresuje aby karzdy miał w domu luxus. 
 Co do PGE polecam instalacje off girdowe bez kabli PGE. 
+Tą wielką biedę można rozwiązać prcesorami AI-Net z radio drukarkami kwantowymi np.: produkcja wina, papierosów i kocy i ubrań czy dań w słoiku.  
