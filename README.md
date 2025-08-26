@@ -134,3 +134,4 @@ Biedę wprowadza niestety Izrael bo inwestuje w broń i wojny to izrael boi się
 Chce przekonać świat że nie ma o co się kłócić gdzie jest krzyż czy złoto dla krzyża bo to wojny watykanu są. Dlatego inwestujmy w technologię ożywiania zmarłych. 
 Ci co ludzie noszą dresy też są za wojnami nie pokojem i lotami kosmicznymi tylko za dzikimi wojnami.  
 To wojownicze wężowe plemie z egiptu i izraela robi wojny. Zwykli ludzie chcą żyć. Nie chcą ginąć od harrp. 
+Wojny jakie prowadzono to były wojny lombardzistów. 
