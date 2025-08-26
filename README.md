@@ -140,3 +140,4 @@ Pochówki grobowe wymyślił arab i żyd nie medyk tylko szaman żyd czy szaman 
 Żydom karze jako Hrabia ściąć głowę i ręce za te afery i wojny i masowe pogrzeby brak inwestycji w nowe technologie odnowy biologicznej i nowe technologie ożywiania zmarłych. 
 Nagroda nobla i oskara to nagroda wyśmiewsza za naukę i aktorstwo nagroda do więzienia. 
 Żydzi to bezdomni niesomowici foljarze. 
+Religie stworzyli foljarze. 
