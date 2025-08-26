@@ -133,3 +133,4 @@ Wszystkie zakupy będą do 100 zł lub 50 zł na miesiąc i duże zakupy.
 Biedę wprowadza niestety Izrael bo inwestuje w broń i wojny to izrael boi się pogodzenia z innymi i dlatego robi wojny ze strachu przed zgodą z innymi. Żydzi to typowe dupki MSWIA czy z mosadu. Warto dodać że wszystkie wojny to tylko prowadził i prowadzi izrael a nie inne kraje.  
 Chce przekonać świat że nie ma o co się kłócić gdzie jest krzyż czy złoto dla krzyża bo to wojny watykanu są. Dlatego inwestujmy w technologię ożywiania zmarłych. 
 Ci co ludzie noszą dresy też są za wojnami nie pokojem i lotami kosmicznymi tylko za dzikimi wojnami.  
+To wojownicze wężowe plemie z egiptu i izraela robi wojny. Zwykli ludzie chcą żyć. Nie chcą ginąć od harrp. 
