@@ -138,3 +138,4 @@ Wojny jakie prowadzono to były wojny lombardzistów.
 Wojny prowadzą żydowskie wieśki dresy. NP.: tym wieśkom przezkadza nawet wiejskiej policji dorug pieniedzy nawet dobrze pdrobionych piniedzy. 
 Pochówki grobowe wymyślił arab i żyd nie medyk tylko szaman żyd czy szaman arab. 
 Żydom karze jako Hrabia ściąć głowę i ręce za te afery i wojny i masowe pogrzeby brak inwestycji w nowe technologie odnowy biologicznej i nowe technologie ożywiania zmarłych. 
+Nagroda nobla i oskara to nagroda wyśmiewsza za naukę i aktorstwo nagroda do więzienia. 
