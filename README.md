@@ -130,3 +130,4 @@ Ale to nie spodoba się kapitalistom a socjalistom się spodoba bo będzie za da
 Z koleji bez cyfryzacji i niskich cenn produkty klasycznie produkowane będą z koleji bardzo drogie i nie każdego będzie stać na zakupy i znów są posty dla populcji. Z koleji jak sklepy będą przez ludzi oprużnane to z koleji oni szybko zamykają sklepy i stawiają od nowa nowe sieci sklepów. 
 Wszystkie zakupy będą do 100 zł lub 50 zł na miesiąc i duże zakupy. 
 Życie jak chłop pańszczyźniany karze żyć komunizm i studio CD Projekt Red z krakowa czyli karzą czerwoni się dzielić z innymi swoim luksusem.  
+Biedę wprowadza niestety Izrael bo inwestuje w broń i wojny to izrael boi się pogodzenia z innymi i dlatego robi wojny ze strachu przed zgodą z innymi. Żydzi to typowe dupki MSWIA czy z mosadu. Warto dodać że wszystkie wojny to tylko prowadził i prowadzi izrael a nie inne kraje.  
