@@ -142,3 +142,4 @@ Nagroda nobla i oskara to nagroda wyśmiewsza za naukę i aktorstwo nagroda do w
 Żydzi to bezdomni niesomowici foljarze. 
 Religie stworzyli foljarze. 
 Religie stworzyli dla mas i kontroli mas foljarze żydzi. 
+Żydzi zawsze blokowali bajkami napęd worp bo karzą żyć na ziemi i suchać foli o bibli a nie rozwoju cywilizacji.  
