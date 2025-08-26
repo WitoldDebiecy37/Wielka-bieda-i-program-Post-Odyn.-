@@ -137,3 +137,4 @@ To wojownicze wężowe plemie z egiptu i izraela robi wojny. Zwykli ludzie chcą
 Wojny jakie prowadzono to były wojny lombardzistów. 
 Wojny prowadzą żydowskie wieśki dresy. NP.: tym wieśkom przezkadza nawet wiejskiej policji dorug pieniedzy nawet dobrze pdrobionych piniedzy. 
 Pochówki grobowe wymyślił arab i żyd nie medyk tylko szaman żyd czy szaman arab. 
+Żydom karze jako Hrabia ściąć głowę i ręce za te afery i wojny i masowe pogrzeby brak inwestycji w nowe technologie odnowy biologicznej i nowe technologie ożywiania zmarłych. 
