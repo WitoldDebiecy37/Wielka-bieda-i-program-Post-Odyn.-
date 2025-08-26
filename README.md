@@ -136,3 +136,4 @@ Ci co ludzie noszą dresy też są za wojnami nie pokojem i lotami kosmicznymi t
 To wojownicze wężowe plemie z egiptu i izraela robi wojny. Zwykli ludzie chcą żyć. Nie chcą ginąć od harrp. 
 Wojny jakie prowadzono to były wojny lombardzistów. 
 Wojny prowadzą żydowskie wieśki dresy. NP.: tym wieśkom przezkadza nawet wiejskiej policji dorug pieniedzy nawet dobrze pdrobionych piniedzy. 
+Pochówki grobowe wymyślił arab i żyd nie medyk tylko szaman żyd czy szaman arab. 
