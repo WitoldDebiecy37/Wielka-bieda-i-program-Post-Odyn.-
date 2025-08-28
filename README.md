@@ -148,3 +148,4 @@ Ci co nami rządzą z reprezantacji widzew łódź i światem rządzą ci ludzie
 Szwedzi mają socjalu po 30 000 zł i rent i wypłat i emerytur. Nas utrzymują za 2000 zł nawet nikgo nie stać za 2000 zł na rodzine. 
 Za 2000 zł to można żyć tylko samemu w dużej wygodnej wielopokojowej kawalerce samemu. 
 Warto dodać że dywizjon 303 zatrudnia samotników do wojska i powołuje ich do służby w armi. Armia to niech zatrudni boty a nie ludzi. Właśnie to przez armie ludzie nie mają życia. Kolejna bieda czerwoni.  
+Jak nie pochowamy polityków na cemntarzu wszystkich to znów będziemy drodzy ludzie żyć jak w paryżu we frnacji za 2000 zł bez prawa wycieczki za granice swojego miasta. Politycy blokują doruk piniedzy.
