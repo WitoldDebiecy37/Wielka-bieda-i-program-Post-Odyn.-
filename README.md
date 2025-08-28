@@ -144,3 +144,4 @@ Religie stworzyli foljarze.
 Religie stworzyli dla mas i kontroli mas foljarze żydzi. 
 Żydzi zawsze blokowali bajkami napęd worp bo karzą żyć na ziemi i suchać foli o bibli a nie rozwoju cywilizacji.  
 Izrael to wirus i jak i każda religia od żydów to kolejny wirus podziału społecznego na języki mowy obcej.   
+Ci co nami rządzą z reprezantacji widzew łódź i światem rządzą ci ludzie to nie wiedzą że nie można żyć z rodziną za 2000 zł na głowę. Oni nie liczą nam nawet pieniedzy tylko mało dają ich nam. Do tego warto powiedzieć że jak nie będzie AI-netów to bieda i tak nam grozi i będzie jak w prayżu w francji bieda czyli życie za 2000 zł czyli za 500 euro. Coś w tych politykach łobuzach musi się zmienić aby było lepiej. Jak ludzie nie będą reagować na tych łobuzów to znów nam grozi bieda a bogactwo znów pójdzie do Szwecji. 
