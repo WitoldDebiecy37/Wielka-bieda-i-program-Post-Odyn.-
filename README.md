@@ -174,3 +174,4 @@ Podobnie z tłumaczeniami i pomocą dla fudnacji na NGO z patentami pomoc za pat
 To już lepiej dać tej osobie za pomoc vois żonę z zabawakmi do tiuningu jej jak te voisy są reklamówki amazon voisy głośniki do muzyki. 
 Czy dać apk z Teslą nową niż fajki czy odchody czy oszczędzacze i dać się okraść czyli zapłata od bezdomnych złodzieji.  
 Ci złodzieje co nie płacą  za prace są po studiach hakingu i bezpiecznistwa są to pracowanicy ABW i hakerzy kaliego linuxa co płacą za pomoc papierosami czy odchodami ze swojego szaltu miejskiego.  
+Ci co płacą jak simom z PCK za pomoc papierosami i odchodami to zwyczajnie jest to zachowanie kórwy i świni a sami na tych patentach robią pieniedze ci od bezpiecznistwa pracownicy ABW to kórwy i chuje są. 
