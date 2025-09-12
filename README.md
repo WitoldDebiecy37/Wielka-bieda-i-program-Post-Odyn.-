@@ -185,3 +185,4 @@ Ci komuniści żydzi socjaliści ostanio wam robią ludzie kapitalizmu pogrzeby 
 Czerwoni to ci złodzieje z 112. 
 Czerwoni to afery tanio kupić drogo sprzedać. 
 Te mordersta na radio harrp to czerwoni i socjaliści zabili tych ludzi na ostanich pogrzebach a niby choroby rak.  
+Tych co wam pochowali to poszło im o Maika Lotkowskiego kasę z lotto. Dlatego ich nie ma. 
