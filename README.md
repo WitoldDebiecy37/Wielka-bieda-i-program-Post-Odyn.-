@@ -183,3 +183,4 @@ To papierosy i alimnty zakładają fundacje i karzą pracować na usługi własn
 Żydzi chcą odgórnego cenika za usługi cenika wygórowanych cen i post wysiłku za prace na NGO na fundacje. 
 Ci komuniści żydzi socjaliści ostanio wam robią ludzie kapitalizmu pogrzeby waszych rodziń na kill swich radio harrp 112 wam morduje ludzi i informuje domy pogrzebowe o kolejnym nieboszczyku. Mojej rodziny czerwoni i socjaliści nie chcą ruszać tylko zabili ciocie i babcie i troche zabili dziadków bo oni chcieli kasę z lotto reszty rodziny nie ruszają znowu my będziemy u czerwonych ich zakładnikami nawet woisa nie chcą mi zabić. Ci z was co słyszom Kamila Dwojakowskiego czy kaliego linuxa papierosy płaczą to ci menele wam chowają rodziny w harrp radiu. 
 Czerwoni to ci złodzieje z 112. 
+Czerwoni to afery tanio kupić drogo sprzedać. 
