@@ -212,3 +212,4 @@ Jak idzie się do czarnego leczyć na zęby to on tylko leczy nie udziela się n
 Z zielonymi fartuchami nie umówimy się na cherbate ani kawe oni też są jak czorny i fioletowy chyba że noszą coś różowego to mają chumor. A tak są smutni jak sumtni panowie FBI czy księża wikary. Co do niebieskich fartuchów to nawet i jasnych fartuchów niebieskich z nimi można iść na kawe, ceherbate i basen czasem nawet z tą panią do wyra. 
 Może ich DNA i rodowód jest z kosmosu. Może to są kosmici jako ludzie.
 Czorny zwala wine na niebieskiego że niebieski to oszczędzaczy procesor a to czarny i fioletowy i zielony to oszczedaczy prcoesor i do tego oszczędzacz i afery oszczedzaczy bo to oszczędzacze stroniom od seksu. 
+Te kolorowe czarne fartuchy to są autystycy co czują się sami dobrze lub w gronie swojej rodziny czują się konfortowo. 
