@@ -200,3 +200,4 @@ Pozbędziemy się tylko tych aferzystów i buraków.
 Zostawie jeszcze Alexe Cheng przy życiu. I znanych fizyków to pomogą Elonowi Maskowi w budowie statków kosmicznych z napędem jonowo plazmowym Worp. 
 Zostawie jeszcze Elize Cassan. Reszta do nieba. 
 Elon zasiedli mars dla tych co zostali na ziemi bo ziemia już się powoli koniczy dlatego Mars będzie dla ocalałych. Bez pijaków i żuli. 
+Ci co się wydzierają teraz na ulicy na eeg radio i na ulicy słyszą głosy bo oszczędzaczy nie potrzebujesz ci ludzie dostaną żółte papiery za afery oszczędaczy i oszczędaczyków i oszczedzaczy ubrań do noszenia np>: za kalesony vois procesor. 
