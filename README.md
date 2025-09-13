@@ -202,3 +202,4 @@ Zostawie jeszcze Elize Cassan. Reszta do nieba.
 Elon zasiedli mars dla tych co zostali na ziemi bo ziemia już się powoli koniczy dlatego Mars będzie dla ocalałych. Bez pijaków i żuli. 
 Ci co się wydzierają teraz na ulicy na eeg radio i na ulicy słyszą głosy bo oszczędzaczy nie potrzebujesz ci ludzie dostaną żółte papiery za afery oszczędaczy i oszczędaczyków i oszczedzaczy ubrań do noszenia np>: za kalesony vois procesor. 
 Marki ubrań Adidas, Puma, Niki czy różne rynki to oszczędzacze a zalando to zbyszek oszczędzacze. 
+Ci co kupują oszczędzacze to kupują uszlachetniacze ciała a raczej bo cierpienie uszlechatnia ich dusze i ciało. 
