@@ -199,3 +199,4 @@ Od dzisja prawnie bronie pirate by, chomikuj, rapid shere i game trainer. com i 
 Pozbędziemy się tylko tych aferzystów i buraków. 
 Zostawie jeszcze Alexe Cheng przy życiu. I znanych fizyków to pomogą Elonowi Maskowi w budowie statków kosmicznych z napędem jonowo plazmowym Worp. 
 Zostawie jeszcze Elize Cassan. Reszta do nieba. 
+Elon zasiedli mars dla tych co zostali na ziemi bo ziemia już się powoli koniczy dlatego Mars będzie dla ocalałych. Bez pijaków i żuli. 
