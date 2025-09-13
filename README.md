@@ -197,3 +197,4 @@ Lidl opracuje generator kapenadze do sprzedaży do sklepu Lidl firmy Parsaid lub
 Walcze o przyszłość i chce się pozbyć PRL i tych z przeszłości gównie lesiaków są starej daty z wojny urodzeni za afery pogrzebowe ich zatrzymam. 
 Od dzisja prawnie bronie pirate by, chomikuj, rapid shere i game trainer. com i piraty będą legalne dla ubogich. Nie chce słyszeć o aferach zamykania tych portali przez Policje.  
 Pozbędziemy się tylko tych aferzystów i buraków. 
+Zostawie jeszcze Alexe Cheng przy życiu. I znanych fizyków to pomogą Elonowi Maskowi w budowie statków kosmicznych z napędem jonowo plazmowym Worp. 
