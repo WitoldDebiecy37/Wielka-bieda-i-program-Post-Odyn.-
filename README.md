@@ -196,3 +196,4 @@ Zostawie Emme Watson a reszte podziekuje i do piachu. Sklepy zostawie jak będą
 Lidl opracuje generator kapenadze do sprzedaży do sklepu Lidl firmy Parsaid lub tej firmy od soko wiruwek z lidla. Lidl ma tylko sprzedawać z innymi zdrową kuchnie bez chemi i urzywek i fajek. Pijakom podziękujemy za prace nad scenom pijacką między innymi za afery 1 i 2 i 3 wojny światowej mokrej i płenej wódki i faj i cracku i heroiny. 
 Walcze o przyszłość i chce się pozbyć PRL i tych z przeszłości gównie lesiaków są starej daty z wojny urodzeni za afery pogrzebowe ich zatrzymam. 
 Od dzisja prawnie bronie pirate by, chomikuj, rapid shere i game trainer. com i piraty będą legalne dla ubogich. Nie chce słyszeć o aferach zamykania tych portali przez Policje.  
+Pozbędziemy się tylko tych aferzystów i buraków. 
