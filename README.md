@@ -194,3 +194,4 @@ Co do GitHub to sprzedajcie GitHub do Maicrosoft na klocki lego do apk aplikacji
 Macrosoft to firma nie PRL nie bieda a towar luxus. 
 Zostawie Emme Watson a reszte podziekuje i do piachu. Sklepy zostawie jak będą mnie słuchać i te patenty wolnej energi wprowadzą do sprzedaży do sklepy to wszystkie sklepy zostaną na ziemi z Amazon. 
 Lidl opracuje generator kapenadze do sprzedaży do sklepu Lidl firmy Parsaid lub tej firmy od soko wiruwek z lidla. Lidl ma tylko sprzedawać z innymi zdrową kuchnie bez chemi i urzywek i fajek. Pijakom podziękujemy za prace nad scenom pijacką między innymi za afery 1 i 2 i 3 wojny światowej mokrej i płenej wódki i faj i cracku i heroiny. 
+Walcze o przyszłość i chce się pozbyć PRL i tych z przeszłości gównie lesiaków są starej daty z wojny urodzeni za afery pogrzebowe ich zatrzymam. 
