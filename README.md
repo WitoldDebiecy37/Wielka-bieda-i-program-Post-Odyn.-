@@ -230,3 +230,4 @@ Jak nie wymyśli się generatora na drut i wypali się cały węgiel to elektryc
 Bez elektryków nie będzie hazardu i lotto tylko ruletka na karty. 
 Co do elektrowni to zbudujemy dużą elektrownie na Akula TPU dla świata radio centralnie zarządzaną elektrownie przeciw działającą programowi mój prąmd program anty wyłudzument. Akjce elektrowni będą do kupienia w banku będzie można zarobić pieniądze.  
 Program wyłudzument nie będzie istniał program mój promdt bo dużo osób musiało by pracować w serwisie naprawy instalacji mój promd. Dlatego będzie 1 centralna elektrownia w Polsce w Bełchatowie na drut akula TPU. 
+Elektrownia 1 centralna na drut akula TPU będzie dla świata w Bełhatowie w Polsce i loty kosmiczne też będą jak pozbedziemy się wszystkich aferzystów ktrózy umrą na raka. 
