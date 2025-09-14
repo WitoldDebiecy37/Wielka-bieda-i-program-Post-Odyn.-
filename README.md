@@ -223,3 +223,4 @@ Assassyni shiboru to PGE. A PGE ma katany.
 To pan Elektryk i Pani Elektryk niewoli społecznistwo i karze pielić 6 rano pomidory na swojej plantacji na hali czy polu i karze robić za 1000 zł bez kłuecenia się o podwyrszki płacy to elektrycy zabierają wam premie i wysokie pensje i renty i emerytury i zasiłki dają elektrycy niskie pensje. Elektrycy shiboru. 
 Kto nosi katane ten jest elektryk i tyle. Cała TV to wymyślili już ją elektrycy. 
 Nie kupujcie nic od elektryków odetnijcie się od energi elektrycznej i paleniska budujcie na ogień i wychodki z kanałem i wanny baseny na dworzu budujcie banie. Nawet nie kupujcie od elektryków wyspowego offgirdu bo się psuje i jest dobry dla serwisu majsterkowiczów autystyków. Żyjcie w porębie. Bez pogotowia 112 elektryków schizoli i autystyków nija. 
+Elity Elektryków to są ci niepełnosprawni co zwykłych ludzi traktują jak szmate i karzą pracować na zasoby za 1000 zł. 
