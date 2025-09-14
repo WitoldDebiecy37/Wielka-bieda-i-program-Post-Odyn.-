@@ -224,3 +224,4 @@ To pan Elektryk i Pani Elektryk niewoli społecznistwo i karze pielić 6 rano po
 Kto nosi katane ten jest elektryk i tyle. Cała TV to wymyślili już ją elektrycy. 
 Nie kupujcie nic od elektryków odetnijcie się od energi elektrycznej i paleniska budujcie na ogień i wychodki z kanałem i wanny baseny na dworzu budujcie banie. Nawet nie kupujcie od elektryków wyspowego offgirdu bo się psuje i jest dobry dla serwisu majsterkowiczów autystyków. Żyjcie w porębie. Bez pogotowia 112 elektryków schizoli i autystyków nija. 
 Elity Elektryków to są ci niepełnosprawni co zwykłych ludzi traktują jak szmate i karzą pracować na zasoby za 1000 zł. 
+Wszystkie wysiłki post mafi to opracowanie na świecie energi elektrycznej się skupiały te afery wszystkie jak podbijanie wiosek wieśniaków i mordowanie ich bo chcieli palenisko tradycyjne i koc czesany ręcznie robiony i jakieś ubrania robione na kamieniu. 
