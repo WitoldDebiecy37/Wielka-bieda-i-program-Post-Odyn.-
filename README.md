@@ -221,3 +221,4 @@ Ci assassyni nizryci nawet ninja czy samuraje gaideny i assassyni z gier assassy
 Pani Naome z Assassin ceed Shadow to pani inżynier elektryk. Wojują o energię elektryczną dla PGE i niszczą ludzi co chcą studni na korbę oni to pomocy 112 dają lovelasamo za inspiracje miłości pod kocem truzizny dla tych autystyków liczy się tylko usługa kasy i usługa dostarczenia energi elektrycznej cała szopka Assassin creed to afery PGE to są roboty PGE to bezdomne roboty. Tyle z histori afer PGE.  
 Assassyni shiboru to PGE. A PGE ma katany. 
 To pan Elektryk i Pani Elektryk niewoli społecznistwo i karze pielić 6 rano pomidory na swojej plantacji na hali czy polu i karze robić za 1000 zł bez kłuecenia się o podwyrszki płacy to elektrycy zabierają wam premie i wysokie pensje i renty i emerytury i zasiłki dają elektrycy niskie pensje. Elektrycy shiboru. 
+Kto nosi katane ten jest elektryk i tyle. Cała TV to wymyślili już ją elektrycy. 
