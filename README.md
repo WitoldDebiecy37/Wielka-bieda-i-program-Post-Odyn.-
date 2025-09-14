@@ -228,3 +228,4 @@ Wszystkie wysiłki post mafi to opracowanie na świecie energi elektrycznej się
 TV zawsze kłamama że elektrycy są fajni. To elektrycy niewolą ludzi. 
 Jak nie wymyśli się generatora na drut i wypali się cały węgiel to elektrycy mogą iść do lamusa będą nikomu nie potrzebni.  
 Bez elektryków nie będzie hazardu i lotto tylko ruletka na karty. 
+Co do elektrowni to zbudujemy dużą elektrownie na Akula TPU dla świata radio centralnie zarządzaną elektrownie przeciw działającą programowi mój prąmd program anty wyłudzument. Akjce elektrowni będą do kupienia w banku będzie można zarobić pieniądze.  
