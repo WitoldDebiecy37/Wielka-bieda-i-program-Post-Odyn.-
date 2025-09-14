@@ -227,3 +227,4 @@ Elity Elektryków to są ci niepełnosprawni co zwykłych ludzi traktują jak sz
 Wszystkie wysiłki post mafi to opracowanie na świecie energi elektrycznej się skupiały te afery wszystkie jak podbijanie wiosek wieśniaków i mordowanie ich bo chcieli palenisko tradycyjne i koc czesany ręcznie robiony i jakieś ubrania robione na kamieniu. 
 TV zawsze kłamama że elektrycy są fajni. To elektrycy niewolą ludzi. 
 Jak nie wymyśli się generatora na drut i wypali się cały węgiel to elektrycy mogą iść do lamusa będą nikomu nie potrzebni.  
+Bez elektryków nie będzie hazardu i lotto tylko ruletka na karty. 
