@@ -237,3 +237,4 @@ Ci koleszcy z ukrainy elektrycznej ukriny będą gulgać szambo za to że robią
 Ludzie dupe trują w prasie że ich się boją. Dlateto tych elektryków karze zabić. To są wariaci. Jak ci co kazali się żenić pewnym kobietom. 
 Te terminatory kali linux to pawiany elektrycy. 
 Ci aferzyści to bredzisławy komorowskie shiboru. 
+Ci elektrycy czepiali się ludzi o nowe badania diagnostyczne na jakiś super wypasionych sprzętach dla diagnostów. To są śmieci. Poszło im też o nie zmienianie uszczelek oni to afery oszczędzaczy bo kłucą się o nasze oszczedności dla siebie. 
