@@ -241,3 +241,4 @@ Ci elektrycy czepiali się ludzi o nowe badania diagnostyczne na jakiś super wy
 Ci waraci kali linuxy i shirboru są z green pesu kłucą się też o czystom wode. Dlatego oni dostaną w łeb za afery.  
 To żydzi i kryptożydzi zabierają prawo jazdy i drą dowód osobisty i złomują auta. Te afery to wszystko żydzi z Izraela z Izraelani feacbook też i nk i You tube. 
 Te afery wymyślili aktorzy aby grać w nich np.: k.
+Oszczędzacze w dużej ilości na świecie robią impuls EMP i palą wszystkie sieci energetyczne w okolicy. 
