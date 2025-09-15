@@ -240,3 +240,4 @@ Ci aferzyści to bredzisławy komorowskie shiboru.
 Ci elektrycy czepiali się ludzi o nowe badania diagnostyczne na jakiś super wypasionych sprzętach dla diagnostów. To są śmieci. Poszło im też o nie zmienianie uszczelek oni to afery oszczędzaczy bo kłucą się o nasze oszczedności dla siebie. 
 Ci waraci kali linuxy i shirboru są z green pesu kłucą się też o czystom wode. Dlatego oni dostaną w łeb za afery.  
 To żydzi i kryptożydzi zabierają prawo jazdy i drą dowód osobisty i złomują auta. Te afery to wszystko żydzi z Izraela z Izraelani feacbook też i nk i You tube. 
+Te afery wymyślili aktorzy aby grać w nich np.: k.
