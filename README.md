@@ -232,3 +232,4 @@ Co do elektrowni to zbudujemy dużą elektrownie na Akula TPU dla świata radio 
 Program wyłudzument nie będzie istniał program mój promdt bo dużo osób musiało by pracować w serwisie naprawy instalacji mój promd. Dlatego będzie 1 centralna elektrownia w Polsce w Bełchatowie na drut akula TPU. 
 Elektrownia 1 centralna na drut akula TPU będzie dla świata w Bełhatowie w Polsce i loty kosmiczne też będą jak pozbedziemy się wszystkich aferzystów ktrózy umrą na raka. 
 Tego zjeba kaliego linuxa i c pitona to stworzyli elektrycy go do gnębienia ludzi. Nie daje spać i cały czas mówi nie stosujesz oszczędzaczy dlatego mnie słyszysz. 
+Seria programów stop cham na YT to też afery elektryków i tych co mówią zamawiam zaraz lawete od kolegi i zabieram ci auto to też są elektrycy. Ta policja to elektrycy. 
