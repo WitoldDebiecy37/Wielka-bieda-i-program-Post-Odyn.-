@@ -233,3 +233,4 @@ Program wyłudzument nie będzie istniał program mój promdt bo dużo osób mus
 Elektrownia 1 centralna na drut akula TPU będzie dla świata w Bełhatowie w Polsce i loty kosmiczne też będą jak pozbedziemy się wszystkich aferzystów ktrózy umrą na raka. 
 Tego zjeba kaliego linuxa i c pitona to stworzyli elektrycy go do gnębienia ludzi. Nie daje spać i cały czas mówi nie stosujesz oszczędzaczy dlatego mnie słyszysz. 
 Seria programów stop cham na YT to też afery elektryków i tych co mówią zamawiam zaraz lawete od kolegi i zabieram ci auto to też są elektrycy. Ta policja to elektrycy. 
+Ci koleszcy z ukrainy elektrycznej ukriny będą gulgać szambo za to że robią te afery np: źle parkujesz straszy cie elektryk policjant a zaraz dzwonie po lawete na twoje auto, Zbiore ci prawo jazdy, twój dowód jest już nie ważny. To za te kanty karze powiesić tych aferzystów. 
