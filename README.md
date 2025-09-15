@@ -238,3 +238,4 @@ Ludzie dupe trują w prasie że ich się boją. Dlateto tych elektryków karze z
 Te terminatory kali linux to pawiany elektrycy. 
 Ci aferzyści to bredzisławy komorowskie shiboru. 
 Ci elektrycy czepiali się ludzi o nowe badania diagnostyczne na jakiś super wypasionych sprzętach dla diagnostów. To są śmieci. Poszło im też o nie zmienianie uszczelek oni to afery oszczędzaczy bo kłucą się o nasze oszczedności dla siebie. 
+Ci waraci kali linuxy i shirboru są z green pesu kłucą się też o czystom wode. Dlatego oni dostaną w łeb za afery.  
