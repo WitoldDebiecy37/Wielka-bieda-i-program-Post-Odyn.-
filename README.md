@@ -236,3 +236,4 @@ Seria programów stop cham na YT to też afery elektryków i tych co mówią zam
 Ci koleszcy z ukrainy elektrycznej ukriny będą gulgać szambo za to że robią te afery np: źle parkujesz straszy cie elektryk policjant a zaraz dzwonie po lawete na twoje auto, Zbiore ci prawo jazdy, twój dowód jest już nie ważny. To za te kanty karze powiesić tych aferzystów. 
 Ludzie dupe trują w prasie że ich się boją. Dlateto tych elektryków karze zabić. To są wariaci. Jak ci co kazali się żenić pewnym kobietom. 
 Te terminatory kali linux to pawiany elektrycy. 
+Ci aferzyści to bredzisławy komorowskie shiboru. 
