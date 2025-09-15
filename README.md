@@ -243,3 +243,4 @@ To żydzi i kryptożydzi zabierają prawo jazdy i drą dowód osobisty i złomuj
 Te afery wymyślili aktorzy aby grać w nich np.: k.
 Oszczędzacze w dużej ilości na świecie robią impuls EMP i palą wszystkie sieci energetyczne w okolicy. 
 Te napady na kierowców za tatuarze to afery shiboru elektryków. 
+Sport i imprezy masowe wymyślili bezdomni co nie wiedzą do czego słóży dom tak samo oszczędzacze to też bezdomni wymyślili. 
