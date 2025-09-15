@@ -244,3 +244,4 @@ Te afery wymyślili aktorzy aby grać w nich np.: k.
 Oszczędzacze w dużej ilości na świecie robią impuls EMP i palą wszystkie sieci energetyczne w okolicy. 
 Te napady na kierowców za tatuarze to afery shiboru elektryków. 
 Sport i imprezy masowe wymyślili bezdomni co nie wiedzą do czego słóży dom tak samo oszczędzacze to też bezdomni wymyślili. 
+Co do tych afer to pogodzi ich generator Kapenadze mojej konstrukcji na papierze ulepszonej modularnej konstrukcji generator na drut oszczędzacz uniwersalny i Tesla i Spece X znów będą mieli widownie klijentów. 
