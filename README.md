@@ -257,3 +257,4 @@ To nich niekt nie mówi że oni są tacy dobrzy dla innych jak dla tych co wośp
 Przez afery wośp nasz powiat i nasze miasto codzienie traci po 2 lub 6 mieszakńców z przyczyn pogrzbowych i na radio harrp z afer NGO wośp mafie wośp organizowanych harrp radio chorób na rdio i pogrzbów. Gratis papierosy i ciasto to przyszło ten zwyczaj z NGO i fundacjami wośp z Zimbawe. 
 U nas w naszym powiecie Lesiaki z Tuszyna organizują nam w naszym powiecie i naszym mieście naszym mieszakńcom pogrzeby za kapitalizm i afery o 1 000 000 zł na NGO czy 1 zł. 
 NGO i wośp i zimbawe gratisy i ABW to są afery i papierosy do pochowania naszych kapitalistów i anty komunistów i anty socjalistów i anty serduszko pomocy anty kler. 
+NGO i wośp i zimbawe umywa rence i mówi że im się nalerzało bo nie dali 1 000 000 zł czy 1 zł na cele charytywne NGO i innych para fundacji na rzecz kleru z Zimbawe i Watykanu. 
