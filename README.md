@@ -261,3 +261,4 @@ NGO i wośp i zimbawe umywa rence i mówi że im się nalerzało bo nie dali 1 0
 Co do domów pogrzebowych na zlecenie NGO i fundacji wośp z Zimbawe to Lesiaki mają różne domy pogrzebowe a ich gówny dom pogrzbowy nazywa się Lesiak dom pogrzbowy usługi pogrzebowe i kamieniarskie. A Wychowałek ma dom Pogrzebowy na zachodzie kraju dalekim zachodzie robią afery pogrzebowe ich dom pogrzbowy wychowąłek nazywa się u Lucindy. Lesiaki mają domy pogrzbowe na świecie sieć domów pogrzbowych o różnej nazwie. 
 Jak ktoś nie da 1 000 000 zł z lotto nagrody czy 1 zł na NGO fundacje to są pogrzeby organizowane przez NGO fundacje pogrzeby na świecie z Zimbawe agenda. 
 To NGO fundacje są z Zimbawe z dawnej Wakandy Tonego Starka z Marvel. 
+To są też afery Green spece Gren Pis chronią zwierzęta np.: chronią konie przed sprzedażą za miast aut elektrycznych afery ze szkoły rolniczej w wolborzu.  
