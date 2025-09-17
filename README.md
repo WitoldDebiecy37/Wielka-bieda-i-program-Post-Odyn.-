@@ -262,3 +262,4 @@ Co do domów pogrzebowych na zlecenie NGO i fundacji wośp z Zimbawe to Lesiaki 
 Jak ktoś nie da 1 000 000 zł z lotto nagrody czy 1 zł na NGO fundacje to są pogrzeby organizowane przez NGO fundacje pogrzeby na świecie z Zimbawe agenda. 
 To NGO fundacje są z Zimbawe z dawnej Wakandy Tonego Starka z Marvel. 
 To są też afery Green spece Gren Pis chronią zwierzęta np.: chronią konie przed sprzedażą za miast aut elektrycznych afery ze szkoły rolniczej w wolborzu.  
+Te pogrzeby to awantura o mięso, papierosy, i warzywa i owoce nie wodę tylko pogrzby z braku jedzenia na stole z braku jedzenia ekologicznego jedzenia nic więcej pogrzeby z braku żarcia. 
