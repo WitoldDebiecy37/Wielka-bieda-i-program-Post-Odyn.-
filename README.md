@@ -251,3 +251,4 @@ To ci lekarze robią kryzysy oni karz udzielać pomocy bez piniedzy od serca za 
 To maszyny i paprisoy nie płacą za prace czy pomoc jakom kolwiek przy czym kolwiek. Człowiek płaci bo nie jest maszynom T850 nie jest człowiek człowiek to nie Terminator cyborg płaci za prace. 
 Co do oszczędzaczy i oszczdzaczyków to są nie udane projekty do tych do systemu ludzi z sercem nie mózgiem a sercem zjebami co kazali sobie nie płacić za prace i narzekali że mają dużo pracy i robią w niewoli jak 112 od serca. 
 Dekapitalizacji zysków firmy na rzecz fudnacji i zbiurek pieniedzy i rzeczy na NGO chcą czarni i kapitalizacji zyków dla siebie chcą czarni. Ten kryzysy to jest przez zbiórki wośp i NGO. Tą biede i kryzys ogłosiło zibawe dla celów charytatywnych bez pieniedzy i pracy na czarno na rzecz PCK i NGO i tych do systemu też są z zibawe. 
+To zibawe niszczy sektro prywatnych przedsiębiorców i zakzuje płacenia za kolejne usługi czy 1 razowe usługi. 
