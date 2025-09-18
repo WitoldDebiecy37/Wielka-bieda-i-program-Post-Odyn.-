@@ -269,3 +269,4 @@ Kolejna grupa afer to papierosy wdowy i wdowiec itaka i reinbow razem tylko 60 l
 Inne nazwy na Ole Wychowałek jej afery pogrzebowe to U lucyny pogrzeby i u celiny pogrzeby. A wojne zaczoł ten co ma sieci sklepów z chin i mu nie idzie handel to on otworzył te zakłady pogrzebowe i zaczoł afery pogrzebowe. Gimnazjum nr 3 też ma domy pogrzbowe i obsługuje armie wojskowe. 
 Ta bieda to też pogrzeby. 
 Oni to są te afery żydowskie pogrzbowe a teraz zamnij oczy i śnij czyli wedereska the pache. 
+Np: ci co korzystają z pomocy 1 razowej z NGO nie mają pogrzebów a ci co są ze stadionu i co miesiąc korzystają z pomocy fundacji mają pogrzeby bo fundacja ma ich dość. 
