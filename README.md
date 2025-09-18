@@ -270,3 +270,4 @@ Inne nazwy na Ole Wychowałek jej afery pogrzebowe to U lucyny pogrzeby i u celi
 Ta bieda to też pogrzeby. 
 Oni to są te afery żydowskie pogrzbowe a teraz zamnij oczy i śnij czyli wedereska the pache. 
 Np: ci co korzystają z pomocy 1 razowej z NGO nie mają pogrzebów a ci co są ze stadionu i co miesiąc korzystają z pomocy fundacji mają pogrzeby bo fundacja ma ich dość. 
+Ja już się nie zgadzam na żadna pogrzeby i jako zaduść uczynienie chce aby ich ożywiono i odano im piniądze. A właścicieli domów pogrzbowych wsadzono do więzienia. Nie chce już słyszeć o pogrzbach. Tych ludzi co mają domy pogrzbowe to zaczarowali harrp hipnozą pod progową że mają te firmy pogrzbowe niezgdone z prawem na zlecenie Kali Linux. 
