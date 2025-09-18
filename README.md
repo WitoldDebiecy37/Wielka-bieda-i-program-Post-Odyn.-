@@ -267,3 +267,4 @@ Co do sprwy braku mięsa to można wyłapać wszystkie ptaki i węgorze na obid 
 I mięso z osób nadmiernie oszczędzających co trzymają w komunie i socjaliźmie czy dalicjanizmie w głodzie trzymają innych ludzi przy życiu że oni z głodu to już żygają np.: przez badania rzempieleckich o ochronie zwierząt i ludzi oszczędających nadmiernie to inni nie mogą przz ich ochronę Watykanu nic zjeść nawet napić się wody nie mogą z jezior i oceanów i rzek tylko walą energetyki sytetyki jak Youpro.   
 Kolejna grupa afer to papierosy wdowy i wdowiec itaka i reinbow razem tylko 60 lat po tem pogrzeby rodziny. 
 Inne nazwy na Ole Wychowałek jej afery pogrzebowe to U lucyny pogrzeby i u celiny pogrzeby. A wojne zaczoł ten co ma sieci sklepów z chin i mu nie idzie handel to on otworzył te zakłady pogrzebowe i zaczoł afery pogrzebowe. Gimnazjum nr 3 też ma domy pogrzbowe i obsługuje armie wojskowe. 
+Ta bieda to też pogrzeby. 
