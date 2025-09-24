@@ -275,3 +275,4 @@ To wszystko przez orgnizowanie świant jest brak piniedzy na świecie. Dlatego �
 Dlatego radze nie obchodzić świont nawet świont sportu jakim są świenta lotto czy afery lotto bo idzie ich kasa na chorych nie do naszej kieszeni. Dlatego to znów jest marnowanie piniedzy. Nauczmy się nie skromności a ostrego oszczędzania i unikania afer świantecznych. Nie dawajmy na NGO to będziecie mieć kase a NGO możecie zgłosić do sądu że was chce pochować NGO bo ktoś nie dał 1 zł czy 1 000 000 zł na NGO. Papiersoy niech płaczą. 
 Świenta to wydaktki jak na papierosy duże wydatki pieniedzy jak na oszczędzacze co niby oszczędzają pieniedze nauczymy się oszczędzać gotówkę nie brać kredtytów czyli złotych kart jak Ferdek Kiepski z parabanków.  
 Te afery braku piniedzy to Watykan. 
+Ci co nie pozwalają przekraczać prędkości kosmicznej czy prędkości światła są ze szpitala ze 112 i nie pozwalją latać z prędkością czarnej dziury w kosmosie są ze szpitala ze 112. 
